@@ -52,3 +52,6 @@ Can mean different things based on context, for example:
 - an opinionated Hodrikan
 - One who estemes himself as being smart or genius (ass)
 
+## Panthered 
+- A very small (or a very very small) panther of merde
+- One who is referenced as a panther but also illustrated as a merdy creature 
